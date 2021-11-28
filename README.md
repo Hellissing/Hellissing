@@ -1,5 +1,3 @@
 - 👋 Hi, I’m @Hellissing
 - 👀 I’m interested in backend/creating apps software..
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me my WhatsApp =>0610077457
